@@ -16,7 +16,7 @@
 
 - 👨‍💻 All of my projects are available at **[My Portfolio](https://eldhose1308.me)**
 
-- 📫 How to reach me **eldhose1308191@gmail.com**
+- 📫 How to reach me **eldhossaji13.8@gmail.com**
 
 - ⚡ Fun fact **I am a workaholic :-P**
 
